@@ -4,4 +4,4 @@
 -amo series de romace
 -gosto de animais 
 -amo sair pra lugares com meus amigos
-- ⚡ 
+-estudo no periodo da manhã
