@@ -1,7 +1,7 @@
-- oi,meu nome é bruna
-- tenho 15 anos 
-- amo ouvir musicas 
-- amo series de romance
-- gosto de animais 
-- amo sair pra lugares com meus amigos
-- estudo no periodo da manhã
+-🙋‍♀️ oi,meu nome é bruna
+-🥳tenho 16 anos 
+-🎼amo ouvir musicas 
+-💘 amo series de romance
+-🐕gosto de animais 
+-🚶‍♀️ amo sair pra lugares com meus amigos
+-👩‍🎓 estudo no periodo da manhã
